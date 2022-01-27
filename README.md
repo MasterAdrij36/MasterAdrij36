@@ -1,5 +1,5 @@
 ### Hi there! I am Adrij Ghosh 👋
-
+Be happy!!!
 <!--
 **MasterAdrij36/MasterAdrij36** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
